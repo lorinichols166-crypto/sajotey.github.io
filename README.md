@@ -1,1 +1,1 @@
-# sajotey.github.io
+# github.io
